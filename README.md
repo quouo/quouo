@@ -3,6 +3,7 @@
 -  i spend my days crying and being trash
 -  kill me
 -  if you wanna reach me, dont.
+-  south park pls sponsor me
 
 <!---
 quouo/quouo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
