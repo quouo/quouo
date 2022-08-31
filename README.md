@@ -1,5 +1,5 @@
 -  uh hi im @quouo they/them
--  i made this account just to follow un cos he told me to 💀
+-  i made this account just to follow jun cos he told me to 💀
 -  i spend my days crying and being trash
 -  kill me
 -  if you wanna reach me, dont.
